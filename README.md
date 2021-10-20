@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... LIFE
 - 🌱 I’m currently learning ...STREETS OF INTERNET
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... CALL ME DADDY
+- 📫 How to reach me ... NEVER GIVE UP!
 
 <!---
 nessuno-root/nessuno-root is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
